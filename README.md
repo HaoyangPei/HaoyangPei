@@ -1,1 +1,1 @@
-# Welcome to the Haoyang Pei's Blog
+# Haoyang Pei's Blog
